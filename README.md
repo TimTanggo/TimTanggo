@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TimTanggo
-- 👀 I’m interested in every funny thing.
+- 👀 I’m interested in every interesting thing. Sports is fun!
 - 🌱 I’m currently learning OI
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ? Plese email to me at 1747401071@qq.com then I will reply soon.（maybe）
